@@ -1,0 +1,3 @@
+My name is Eric Ianni. I enjoy many hobbies. I have been running a chainmaille business for a few years. By business I mean I have sold a few things and spent more money than I have taken in. I also do leather working and turn wooden goblets. I have a small farm. By a small farm I mean I don't live in a rural area but have six chickens, two 1000sqft gardens, a mini orchard, and two beehives: this year we will have two alpacas.
+
+Programming Background
